@@ -1,4 +1,4 @@
-##### Hello! I'm Devrim.
+##### Hello! I'm Devrim. :desktop_computer:
 
 ##### Junior Computer Engineering student at Ankara University
 
